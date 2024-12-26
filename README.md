@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NgaboBright
-- 👀 I’m interested in apps,games,website making...etc 
+- 👀 I’m interested in apps,games,website development...etc 
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on the above interests
 - 📫 How to reach me brightngabo68@gmail.com
